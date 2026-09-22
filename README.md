@@ -28,9 +28,8 @@ Are you a pizza lover and a gaming enthusiast? The Pizza Edition Games is the ul
 
 Don't wait! Dive into the world of pizza adventures and start playing today.
 
-🍕 **Download & Play**: [Link to Game](https://ais-pre-66gr5pozid42rfvmj2fvug-295573480384.europe-west2.run.app/s/welcome
+🍕 **Download & Play**: [Link to Game][[\https://classroom-6x-cool.gitlab.io/soccer-random.html
 ---
-
 ### 👥 Contributors
 We welcome developers, designers, and gamers to contribute to The Pizza Edition Games. If you're passionate about pizza and gaming, join us in creating the best pizza-themed games ever!
 
