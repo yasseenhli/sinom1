@@ -28,8 +28,7 @@ Are you a pizza lover and a gaming enthusiast? The Pizza Edition Games is the ul
 
 Don't wait! Dive into the world of pizza adventures and start playing today.
 
-🍕 **Download & Play**: [Link to Game](https://The sino in 6.1 Edition Games 🍕🎮l.gitlab.io/)
-
+🍕 **Download & Play**: [Link to Game](https://ais-pre-66gr5pozid42rfvmj2fvug-295573480384.europe-west2.run.app/s/welcome
 ---
 
 ### 👥 Contributors
