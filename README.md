@@ -1,4 +1,4 @@
-# The Pizza Edition Games 🍕🎮
+# The sino in 6.1 Edition Games 🍕🎮
 
 ## Welcome to The Pizza Edition Games!
 
