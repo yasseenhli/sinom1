@@ -4,12 +4,11 @@
 
 Are you a pizza lover and a gaming enthusiast? The Pizza Edition Games is the ultimate destination where the love for pizza meets the excitement of gaming! Our collection of fun, pizza-themed games offers players an engaging and mouthwatering experience.
 
-## <a href="https://izigames.net/">👉 Play The Pizza Edition Unblocked Games 👈</a>
+## <a href="https://izigames.net/">👉 The sino in 6.1 Edition Games 🍕🎮 👈</a>
 
 ![the pizza edition unblocked games](https://github.com/user-attachments/assets/4c56d3e0-b5f2-485d-a86f-f3d027b5d92d)
 
-## 🎯 Why Play The Pizza Edition Games?
-
+## 🎯 The sino in 6.1 Edition Games 🍕🎮
 - **Unique Pizza-Themed Gameplay**: Every game revolves around delicious pizza challenges, making it a tasty and entertaining adventure.
 - **Exciting Challenges & Rewards**: Complete pizza orders, dodge obstacles, and become the ultimate pizza master.
 - **For All Ages**: Whether you're a casual player or a hardcore gamer, our games bring joy to everyone.
@@ -29,7 +28,7 @@ Are you a pizza lover and a gaming enthusiast? The Pizza Edition Games is the ul
 
 Don't wait! Dive into the world of pizza adventures and start playing today.
 
-🍕 **Download & Play**: [Link to Game](https://classroom-6x-cool.gitlab.io/)
+🍕 **Download & Play**: [Link to Game](https://The sino in 6.1 Edition Games 🍕🎮l.gitlab.io/)
 
 ---
 
